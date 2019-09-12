@@ -1,6 +1,9 @@
 # 备用域名
 
-www.skya.cc
+www.sky77.cc
 
+www.sss88.cc
+
+www.tt556.xyz
 
 
